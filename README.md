@@ -1,3 +1,3 @@
 # mid-remake-v3
 
-## final version
+## final version with edits 
